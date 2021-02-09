@@ -1,0 +1,1 @@
+webdetailsru.github.io
